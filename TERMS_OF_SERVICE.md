@@ -30,4 +30,4 @@ In no event shall ClipSummary, nor its directors, employees, partners, agents, s
 We reserve the right, at our sole discretion, to modify or replace these Terms at any time.
 
 ## 9. Contact Us
-If you have any questions about these Terms, please contact us at: [Your Support Email]
+If you have any questions about these Terms, please contact us at: sketchhero.team@gmail.com
