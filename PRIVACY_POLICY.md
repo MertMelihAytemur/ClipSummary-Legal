@@ -38,4 +38,4 @@ You have the right to delete your account and all associated data at any time di
 We may update our Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page.
 
 ## 9. Contact Us
-If you have any questions about this Privacy Policy, please contact us at: [Your Support Email]
+If you have any questions about this Privacy Policy, please contact us at: sketchhero.team@gmail.com
